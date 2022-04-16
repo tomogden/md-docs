@@ -1,5 +1,5 @@
-**Bishop's Message**
-First Presidency 2022 Easter message: ‘He is risen’
+h2.Bishop's Message
+**First Presidency 2022 Easter message: ‘He is risen’**
 
 ![In scene depicted in Bible videos produced by The Church of Jesus Christ of Latter-day Saints, Jesus appears to Mary after His resurrection. Jesus appears to Mary at the tomb.](https://www.thechurchnews.com/wp-content/uploads/2022/04/easter-pictures-resurrection-mary-magdalene-1242543-print-1-1024x836.jpg)
 *In scene depicted in Bible videos produced by The Church of Jesus Christ of Latter-day Saints, Jesus appears to Mary after His resurrection. Jesus appears to Mary at the tomb. *Credit: The Church of Jesus Christ of Latter-day Saints**

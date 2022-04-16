@@ -15,21 +15,21 @@ President Russell M. Nelson and his counselors, President Dallin H. Oaks and Pre
 1:00 pm - 2:00 pm: Fast and Testimony Sacrament Meeting in person and via Zoom
 2:10 pm - 3:00 pm: Second Hour Schedule (see bulletin)
 ## Weekly Announcements
-Come Follow Me
+**Come Follow Me**
 - Easter, Apr 11 - Apr 17, Easter: ""He Will Swallow Up Death in Victory""
 - Primary Lesson can be accessed here (children and families)
-Temple Open House McLean Stake Day
+**Temple Open House McLean Stake Day**
 - Friday, Apr 29 from 10am-12am.
-Find a Friend, Take a Friend
+**Find a Friend, Take a Friend**
 - All ward members are invited to join the youth and participate in the Stake's initiative of Find a Friend/Take a Friend.
-DC Temple Parking Reservations
+**DC Temple Parking Reservations**
 - Open for friends that would like to attend the open house. Visit www.dctemple.org for additional information.
 - Prepare for Easter week and share the Come Unto Christ site. Watch the new video The Good News and learn about the Savior’s final week. #BecauseOfHim
 - Watch or Stream He Is Risen: A Special Easter Celebration by the Tabernacle Choir at Temple Square and more starting Apr 10 at Noon EST.
 ## Other Notes
-- Prepare for Easter week and share the Come Unto Christ site. Watch the new video The Good News and learn about the Savior’s final week. #BecauseOfHim
-- Watch or Stream He Is Risen: A Special Easter Celebration by the Tabernacle Choir at Temple Square and more starting Apr 10 at Noon EST.
-- Join the Falls Church Ward members and friends Facebook and Instagram (@fallschurchwardfriends) pages.
-- Subscribe to the Falls Church Ward listserv by sending an email to: falls-church-ward-listserv+subscribe@googlegroups.com
+- **Prepare for Easter week** and share the Come Unto Christ site. Watch the new video The Good News and learn about the Savior’s final week. #BecauseOfHim
+- **Watch or Stream He Is Risen:** A Special Easter Celebration by the Tabernacle Choir at Temple Square and more starting Apr 10 at Noon EST.
+- **Join the Falls Church Ward** members and friends Facebook and Instagram (@fallschurchwardfriends) pages.
+- **Subscribe to the Falls Church Ward listserv** by sending an email to: falls-church-ward-listserv+subscribe@googlegroups.com
 For more events and their details see the printed ward bulletin.
 

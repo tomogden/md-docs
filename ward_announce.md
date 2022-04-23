@@ -23,8 +23,8 @@ https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 **Weekly Announcements** <br />
 **Come Follow Me** <br />
 April 18–24<br />
-- Exodus 18–20<br />
-- All That the Lord Hath Spoken We Will Do<br />
+- Exodus 18–20
+- All That the Lord Hath Spoken We Will Do
 <br />
 **Find a Friend, Take a Friend.**  <br />
 - All ward members are invited to join the youth and participate in the Stake's initiative of Find a Friend/Take a Friend.  <br />

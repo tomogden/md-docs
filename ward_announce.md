@@ -1,4 +1,4 @@
-"**F A L L S   C H U R C H   W A R D   A N N O U N C E M E N T S**
+**F A L L S   C H U R C H   W A R D   A N N O U N C E M E N T S**
 Sunday, April 24, 2022<br />
 **Bishop's Message**<br />
 Brothers and Sisters,<br />
@@ -25,4 +25,4 @@ https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
 <br />
-"
+

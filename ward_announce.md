@@ -1,4 +1,4 @@
-**F A L L S &nbsp; C H U R C H &nbsp; W A R D &nbsp; A N N O U N C E M E N T S**<br />
+"**F A L L S &nbsp; C H U R C H &nbsp; W A R D &nbsp; A N N O U N C E M E N T S**<br />
 Sunday, April 24, 2022<br />
 <br />
 **Bishop's Message**<br />
@@ -15,7 +15,7 @@ I know that the Lord will spiritually nourish our hearts as we prepare for sacre
 <br />
 <br />
 **Sunday Schedule**<br />
-1:00 pm - 2:00 pm: Fast and Testimony Sacrament Meeting in person and via Zoom. <br />
+1:00 pm - 2:00 pm: Sacrament Meeting in person and via Zoom. <br />
 2:10 pm - 3:00 pm: Second Hour Schedule (see bulletin). <br />
 https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <br />
@@ -41,4 +41,4 @@ April 18–24<br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
 <br />
-
+"

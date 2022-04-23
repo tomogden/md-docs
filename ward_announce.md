@@ -20,7 +20,7 @@ I know that the Lord will spiritually nourish our hearts as we prepare for sacre
 https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <br />
 **Weekly Announcements**<br />
-**Come Follow Me**  <br />
+**Come Follow Me**<br />
 April 18–24<br />
 - Exodus 18–20<br />
 - All That the Lord Hath Spoken We Will Do  <br />

@@ -15,14 +15,14 @@ What can you do to more fully prepare for these experiences?<br />
 I know that the Lord will spiritually nourish our hearts as we prepare for sacred experiences.<br />
 <br />
 <br />
-<hr />
 **Sunday Schedule**<br />
+<hr />
 1:00 pm - 2:00 pm: Sacrament Meeting in person and via Zoom. <br />
 2:10 pm - 3:00 pm: Second Hour Schedule (see bulletin). <br />
 https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <br />
-<hr />
 **Weekly Announcements**<br />
+<hr />
 **Come Follow Me**  <br />
 April 18–24<br />
  Exodus 18–20<br />
@@ -37,8 +37,8 @@ April 18–24<br />
 **DC Temple Parking Reservations.**  <br />
  Open for friends that would like to attend the open house. Visit www.dctemple.org for additional information.  <br />
 <br />
-<hr />
 **Other Notes**<br />
+<hr />
  **Join the Falls Church Ward** members and friends Facebook and Instagram (@fallschurchwardfriends) pages.  <br />
  **Subscribe to the Falls Church Ward listserv** by sending an email to: falls-church-ward-listserv+subscribe@googlegroups.com  <br />
 <br />

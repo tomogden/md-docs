@@ -19,13 +19,13 @@ I know that the Lord will spiritually nourish our hearts as we prepare for sacre
 2:10 pm - 3:00 pm: Second Hour Schedule (see bulletin). <br />
 https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <br />
-**Weekly Announcements**<br />
-**Come Follow Me**<br />
+**Weekly Announcements** <br />
+**Come Follow Me** <br />
 April 18–24<br />
 - Exodus 18–20<br />
 - All That the Lord Hath Spoken We Will Do<br />
 <br />
-**Temple Open House McLean Stake Day**<br />
+**Temple Open House McLean Stake Day** <br />
 - Friday, Apr 29 from 10am-12am.  <br />
 <br />
 **Find a Friend, Take a Friend.**  <br />

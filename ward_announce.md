@@ -1,4 +1,4 @@
-**F A L L S &nbsp; C H U R C H &nbsp; W A R D &nbsp; A N N O U N C E M E N T S**<br />
+"**F A L L S &nbsp; C H U R C H &nbsp; W A R D &nbsp; A N N O U N C E M E N T S**<br />
 Sunday, April 24, 2022<br />
 <br />
 **Bishop's Message**<br />
@@ -22,22 +22,23 @@ https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 **Weekly Announcements**<br />
 **Come Follow Me**  <br />
 April 18–24<br />
-  Exodus 18–20<br />
-  “All That the Lord Hath Spoken We Will Do”  <br />
+ Exodus 18–20<br />
+ “All That the Lord Hath Spoken We Will Do”  <br />
 <br />
 **Temple Open House McLean Stake Day**.  <br />
-  Friday, Apr 29 from 10am-12am.  <br />
+ Friday, Apr 29 from 10am-12am.  <br />
 <br />
 **Find a Friend, Take a Friend.**  <br />
-  All ward members are invited to join the youth and participate in the Stake's initiative of Find a Friend/Take a Friend.  <br />
+ All ward members are invited to join the youth and participate in the Stake's initiative of Find a Friend/Take a Friend.  <br />
 <br />
 **DC Temple Parking Reservations.**  <br />
-  Open for friends that would like to attend the open house. Visit www.dctemple.org for additional information.  <br />
+ Open for friends that would like to attend the open house. Visit www.dctemple.org for additional information.  <br />
 <br />
 **Other Notes**<br />
-  **Join the Falls Church Ward** members and friends Facebook and Instagram (@fallschurchwardfriends) pages.  <br />
-  **Subscribe to the Falls Church Ward listserv** by sending an email to: falls-church-ward-listserv+subscribe@googlegroups.com  <br />
+ **Join the Falls Church Ward** members and friends Facebook and Instagram (@fallschurchwardfriends) pages.  <br />
+ **Subscribe to the Falls Church Ward listserv** by sending an email to: falls-church-ward-listserv+subscribe@googlegroups.com  <br />
 <br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
 <br />
+"

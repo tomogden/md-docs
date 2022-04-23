@@ -19,7 +19,6 @@ I know that the Lord will spiritually nourish our hearts as we prepare for sacre
 2:10 pm - 3:00 pm: Second Hour Schedule (see bulletin). <br />
 https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <br />
-- Friday, Apr 29 from 10am-12am.  <br />
 <br />
 **Weekly Announcements** <br />
 **Come Follow Me** <br />

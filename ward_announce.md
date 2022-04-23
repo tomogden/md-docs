@@ -1,8 +1,8 @@
 **F A L L S &nbsp; C H U R C H &nbsp; W A R D &nbsp; A N N O U N C E M E N T S**<br />
 Sunday, April 24, 2022<br />
 <br />
-<hr />
 **Bishop's Message**<br />
+<hr />
 Brothers and Sisters,<br />
 <br />
 With the Israelites at the base of Mount Sinai, the prophet Moses ""sought diligently to sanctify his people that they might behold the face of God"" (D&C 84:23). The Israelites were invited to be sanctified, to ""wash their clothes,"" to ""be ready,"" and to come to ""the mount"" (Exodus 19:10, 11, 17).  We are receiving similar invitations from God's prophet on the earth today, President Nelson, that we might be prepared for the Lord Jesus Christ through repentance, covenants, and ""life in Christ"" (Romans 8:2):<br />

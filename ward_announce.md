@@ -1,4 +1,4 @@
-"**F A L L S &nbsp; C H U R C H &nbsp; W A R D &nbsp; A N N O U N C E M E N T S**<br />
+**F A L L S &nbsp; C H U R C H &nbsp; W A R D &nbsp; A N N O U N C E M E N T S**<br />
 Sunday, April 24, 2022<br />
 <br />
 **Bishop's Message**<br />
@@ -41,4 +41,4 @@ April 18–24<br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
 <br />
-"
+

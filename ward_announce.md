@@ -23,7 +23,7 @@ https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 **Come Follow Me**<br />
 April 18–24<br />
 - Exodus 18–20<br />
-- All That the Lord Hath Spoken We Will Do  <br />
+- All That the Lord Hath Spoken We Will Do<br />
 <br />
 **Temple Open House McLean Stake Day**.  <br />
 - Friday, Apr 29 from 10am-12am.  <br />

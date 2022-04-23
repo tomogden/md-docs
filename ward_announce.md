@@ -1,5 +1,6 @@
 **F A L L S   C H U R C H   W A R D   A N N O U N C E M E N T S**<br />
 Sunday, April 24, 2022<br />
+<br />
 **Bishop's Message**<br />
 Brothers and Sisters,<br />
 <br />
@@ -40,4 +41,3 @@ April 18–24<br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
 <br />
-

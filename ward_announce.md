@@ -9,7 +9,7 @@ At the foot of Mount Sinai, the people of Israel followed Moses to make a covena
 In our day, Church leaders have encouraged us to also share our specific feelings regarding the temple and its purposes with our loved ones. In an upcoming Home Evening, the resources at temples.churchofjesuschrist.org, hand in hand with a visit to the DC Temple Open House can strengthen each of us. <br />
 <br />
 President Nelson recently taught:<br />
-"Positive spiritual momentum increases as we worship in the temple and grow in our understanding of the magnificent breadth and depth of the blessings we receive there. I plead with you to counter worldly ways by focusing on the eternal blessings of the temple. Your time there brings blessings for eternity."<br />
+""Positive spiritual momentum increases as we worship in the temple and grow in our understanding of the magnificent breadth and depth of the blessings we receive there. I plead with you to counter worldly ways by focusing on the eternal blessings of the temple. Your time there brings blessings for eternity.""<br />
 <br />
 I am grateful for the temple as a reminder of what is truly important. It has been and will continue to be a blessing to feel the spirit of the temple closer to home as we prepare ourselves for the rededication in coming months.<br />
 <br />
@@ -23,9 +23,7 @@ https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <br />
 **Weekly Announcements ============**<br />
 **Come Follow Me**<br />
-Sunday, May 1, 2022<br />
-@ **<br />
-Exodus 24; 31–34: “My Presence Shall Go with Thee”<br />
+Sunday, May 1, 2022Exodus 24; 31–34: “My Presence Shall Go with Thee”<br />
 https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-old-testament-2022/18?lang=eng<br />
 <br />
 **Special Multi-Stake Devotional**<br />
@@ -48,9 +46,7 @@ Sunday, May 15, 2022<br />
 The purpose of the meeting is to instruct and inspire priesthood holders in their duties (and to eat donuts together).<br />
 <br />
 **DC Temple Parking Reservations**<br />
-Saturday, June 11, 2022<br />
-@ **<br />
-Open for friends that would like to attend the open house. Visit www.dctemple.org for additional information.<br />
+Saturday, June 11, 2022Open for friends that would like to attend the open house. Visit www.dctemple.org for additional information.<br />
 www.dctemple.org<br />
 <br />
 <br />

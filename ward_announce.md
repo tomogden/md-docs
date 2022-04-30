@@ -25,27 +25,34 @@ Bishop Jardine<br />
 https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <br />
 **Weekly Announcements ============**<br />
+**Come Follow Me**<br />
+Sunday, May 1, 2022<br />
+@ **<br />
+Exodus 24; 31–34: “My Presence Shall Go with Thee”<br />
+https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-old-testament-2022/18?lang=eng<br />
+<br />
 **Special Multi-Stake Devotional**<br />
 Sunday, May 1, 2022<br />
-Crystal City Chapel, 3400 S Clark Street, Arlington, VA<br />
+@ *Crystal City Chapel, 3400 S Clark Street, Arlington, VA*<br />
 Learn how the new Resource Center for a Better Life will help immigrants and refugees in our area and what opportunities there are to volunteer and serve.<br /><br />
 Webcast on Zoom.<br />
 https://zoom.us/j/98895329873<br />
 <br />
 **Multi-stake Church Prom**<br />
 Saturday, May 14, 2022<br />
-Centreville Stake Center, 14150 Upperridge Dr, Centreville, VA 20121<br />
-For high school juniors and seniors, register online.<br /><br />
+@ *Centreville Stake Center, 14150 Upperridge Dr, Centreville, VA 20121*<br />
+For high school juniors and seniors, register online.<br />
 Volunteers are sought for during the event and for take down. *See Chris Jansen for info.*<br />
 https://www.novachurchprom.com/<br />
 <br />
 **Stake Priesthood Meeting**<br />
 Sunday, May 15, 2022<br />
-Stake Center<br />
+@ *Stake Center*<br />
 The purpose of the meeting is to instruct and inspire priesthood holders in their duties (and to eat donuts together).<br />
 <br />
 **DC Temple Parking Reservations**<br />
 Saturday, June 11, 2022<br />
+@ **<br />
 Open for friends that would like to attend the open house. Visit www.dctemple.org for additional information.<br />
 www.dctemple.org<br />
 <br />
@@ -58,4 +65,3 @@ www.dctemple.org<br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
 <br />
-

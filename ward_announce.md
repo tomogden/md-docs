@@ -9,17 +9,14 @@ At the foot of Mount Sinai, the people of Israel followed Moses to make a covena
 In our day, Church leaders have encouraged us to also share our specific feelings regarding the temple and its purposes with our loved ones. In an upcoming Home Evening, the resources at temples.churchofjesuschrist.org, hand in hand with a visit to the DC Temple Open House can strengthen each of us. <br />
 <br />
 President Nelson recently taught:<br />
-<br />
-Positive spiritual momentum increases as we worship in the temple and grow in our understanding of the magnificent breadth and depth of the blessings we receive there. I plead with you to counter worldly ways by focusing on the eternal blessings of the temple. Your time there brings blessings for eternity.<br />
+""Positive spiritual momentum increases as we worship in the temple and grow in our understanding of the magnificent breadth and depth of the blessings we receive there. I plead with you to counter worldly ways by focusing on the eternal blessings of the temple. Your time there brings blessings for eternity.""<br />
 <br />
 I am grateful for the temple as a reminder of what is truly important. It has been and will continue to be a blessing to feel the spirit of the temple closer to home as we prepare ourselves for the rededication in coming months.<br />
 <br />
 Bishop Jardine<br />
 <br />
-** FAST SUNDAY ============**
 <br />
-<br />
-**Sunday Meeting Schedule ============**<br />
+**Fast Sunday Meeting Schedule ============**<br />
 1:00 pm - 2:00 pm: Sacrament Meeting in person and via Zoom. <br />
 2:10 pm - 3:00 pm: Second Hour Schedule (see bulletin). <br />
 https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />

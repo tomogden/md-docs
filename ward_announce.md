@@ -6,11 +6,11 @@ Brothers and Sisters,<br />
 <br />
 With the Lord's instruction to the people of Israel to build a tabernacle in the wilderness, He provided them with instruction to become a holy people:<br />
 <br />
-""For I am the Lord your God: ye shall therefore sanctify yourselves, and ye shall be holy; for I am holy...for I am the Lord that bringeth you up out of the land of Egypt, to be your God: ye shall therefore be holy, for I am holy."" (Leviticus 11:44-45)<br />
-""Speak unto all the congregation of the children of Israel, and say unto them, Ye shall be holy: for I the Lord your God am holy."" (Leviticus 19:2)<br />
-""Sanctify yourselves therefore, and be ye holy: for I am the Lord your God."" (Leviticus 20:7, 26)<br />
+\"For I am the Lord your God: ye shall therefore sanctify yourselves, and ye shall be holy; for I am holy...for I am the Lord that bringeth you up out of the land of Egypt, to be your God: ye shall therefore be holy, for I am holy.\" (Leviticus 11:44-45)<br />
+\"Speak unto all the congregation of the children of Israel, and say unto them, Ye shall be holy: for I the Lord your God am holy."" (Leviticus 19:2)<br />
+\"Sanctify yourselves therefore, and be ye holy: for I am the Lord your God.\" (Leviticus 20:7, 26)<br />
 <br />
-Things that are holy are ""Sacred, having a godly character, or spiritually and morally pure. The opposite of holy is common or profane"" (Guide to the Scriptures). President Eyring has taught:<br />
+Things that are holy are \"Sacred, having a godly character, or spiritually and morally pure. The opposite of holy is common or profane\" (Guide to the Scriptures). President Eyring has taught:<br />
 <br />
 The hymn “More Holiness Give Me” suggests a way to pray for help in becoming more holy. The author wisely suggests that the holiness we seek is a gift from a loving God, granted over time, after all we can do. You remember the last verse:<br />
 > More purity give me,<br />

@@ -1,4 +1,4 @@
-"**F A L L S &nbsp; C H U R C H &nbsp; W A R D &nbsp; A N N O U N C E M E N T S**<br />
+**F A L L S &nbsp; C H U R C H &nbsp; W A R D &nbsp; A N N O U N C E M E N T S**<br />
 Sunday, May 8, 2022<br />
 <br />
 **Bishop's Message ============**<br />
@@ -96,4 +96,4 @@ https://zoom.us/j/8978612608?pwd=bnh5NTJrN0hiUjM3OVZ5STBMRlVzUT09<br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
 <br />
-"
+

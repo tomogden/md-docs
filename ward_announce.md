@@ -1,4 +1,34 @@
-
+**F A L L S &nbsp; C H U R C H &nbsp; W A R D &nbsp; A N N O U N C E M E N T S**<br />
+Sunday, May 8, 2022<br />
+<br />
+**Bishop's Message ============**<br />
+Brothers and Sisters,<br />
+<br />
+With the Lord's instruction to the people of Israel to build a tabernacle in the wilderness, He provided them with instruction to become a holy people:<br />
+<br />
+\""For I am the Lord your God: ye shall therefore sanctify yourselves, and ye shall be holy; for I am holy...for I am the Lord that bringeth you up out of the land of Egypt, to be your God: ye shall therefore be holy, for I am holy.\"" (Leviticus 11:44-45)<br />
+\""Speak unto all the congregation of the children of Israel, and say unto them, Ye shall be holy: for I the Lord your God am holy.\"" (Leviticus 19:2)<br />
+\""Sanctify yourselves therefore, and be ye holy: for I am the Lord your God.\"" (Leviticus 20:7, 26)<br />
+<br />
+Things that are holy are \""Sacred, having a godly character, or spiritually and morally pure. The opposite of holy is common or profane.\"" (Guide to the Scriptures). President Eyring has taught:<br />
+<br />
+The hymn \""More Holiness Give Me\"" suggests a way to pray for help in becoming more holy. The author wisely suggests that the holiness we seek is a gift from a loving God, granted over time, after all we can do. You remember the last verse:<br />
+> More purity give me, <br />
+> More strength to o’ercome, <br />
+> More freedom from earth-stains, <br />
+> More longing for home. <br />
+> More fit for the kingdom, <br />
+> More used would I be, <br />
+> More blessed and holy— <br />
+> More, Savior, like thee. <br />
+<br />
+Whatever our personal circumstance, wherever we may be on the covenant path home, may our prayers for greater holiness be answered. I know that as our petition is granted, our happiness will increase. It may come slowly, but it will come. I have that assurance from a loving Heavenly Father and His Beloved Son, Jesus Christ.<br />
+<br />
+Our efforts to seek greater personal holiness will lead us to the Savior, Jesus Christ, and qualify us for service in temple and as missionaries. These are blessings that we each might enjoy through the blessings of the gospel of Christ.<br />
+<br />
+Bishop Jardine<br />
+<br />
+<br />
 **Sunday Meeting Schedule ============**<br />
 1:00 pm - 2:00 pm: Sacrament Meeting in person and via Zoom. <br />
 2:10 pm - 3:00 pm: Second Hour Schedule (see bulletin). <br />
@@ -66,4 +96,3 @@ https://zoom.us/j/8978612608?pwd=bnh5NTJrN0hiUjM3OVZ5STBMRlVzUT09<br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
 <br />
-

@@ -6,13 +6,13 @@ Brothers and Sisters,<br />
 <br />
 With the Lord's instruction to the people of Israel to build a tabernacle in the wilderness, He provided them with instruction to become a holy people:<br />
 <br />
-\""For I am the Lord your God: ye shall therefore sanctify yourselves, and ye shall be holy; for I am holy...for I am the Lord that bringeth you up out of the land of Egypt, to be your God: ye shall therefore be holy, for I am holy.\"" (Leviticus 11:44-45)<br />
-\""Speak unto all the congregation of the children of Israel, and say unto them, Ye shall be holy: for I the Lord your God am holy.\"" (Leviticus 19:2)<br />
-\""Sanctify yourselves therefore, and be ye holy: for I am the Lord your God.\"" (Leviticus 20:7, 26)<br />
+\"For I am the Lord your God: ye shall therefore sanctify yourselves, and ye shall be holy; for I am holy...for I am the Lord that bringeth you up out of the land of Egypt, to be your God: ye shall therefore be holy, for I am holy.\" (Leviticus 11:44-45)<br />
+\"Speak unto all the congregation of the children of Israel, and say unto them, Ye shall be holy: for I the Lord your God am holy.\" (Leviticus 19:2)<br />
+\"Sanctify yourselves therefore, and be ye holy: for I am the Lord your God.\" (Leviticus 20:7, 26)<br />
 <br />
-Things that are holy are \""Sacred, having a godly character, or spiritually and morally pure. The opposite of holy is common or profane.\"" (Guide to the Scriptures). President Eyring has taught:<br />
+Things that are holy are \"Sacred, having a godly character, or spiritually and morally pure. The opposite of holy is common or profane.\" (Guide to the Scriptures). President Eyring has taught:<br />
 <br />
-The hymn \""More Holiness Give Me\"" suggests a way to pray for help in becoming more holy. The author wisely suggests that the holiness we seek is a gift from a loving God, granted over time, after all we can do. You remember the last verse:<br />
+The hymn \"More Holiness Give Me\" suggests a way to pray for help in becoming more holy. The author wisely suggests that the holiness we seek is a gift from a loving God, granted over time, after all we can do. You remember the last verse:<br />
 > More purity give me, <br />
 > More strength to o’ercome, <br />
 > More freedom from earth-stains, <br />
@@ -21,7 +21,7 @@ The hymn \""More Holiness Give Me\"" suggests a way to pray for help in becoming
 > More used would I be, <br />
 > More blessed and holy— <br />
 > More, Savior, like thee. <br />
-<br />
+
 Whatever our personal circumstance, wherever we may be on the covenant path home, may our prayers for greater holiness be answered. I know that as our petition is granted, our happiness will increase. It may come slowly, but it will come. I have that assurance from a loving Heavenly Father and His Beloved Son, Jesus Christ.<br />
 <br />
 Our efforts to seek greater personal holiness will lead us to the Savior, Jesus Christ, and qualify us for service in temple and as missionaries. These are blessings that we each might enjoy through the blessings of the gospel of Christ.<br />
@@ -59,7 +59,7 @@ Priests quorum trip to Philadelphia Temple (with 16-18 YW Class)<br />
 **Stake Youth Choir**<br />
 Sunday, May 22, 2022<br />
 @ *Stake Center*<br />
-We are singing """"Trust in the Lord"""" the 2022 mutual theme song at the stake youth conference kick-off on May 22nd.  We need soloists and all voices for the chorus.  Come have fun and sing with us!  Sheet music and the recording are linked below<br />
+We are singing ""Trust in the Lord"" the 2022 mutual theme song at the stake youth conference kick-off on May 22nd.  We need soloists and all voices for the chorus.  Come have fun and sing with us!  Sheet music and the recording are linked below<br />
 https://assets.ldscdn.org/3e/99/3e994bef2935fdcce20db93f660873225f3b2073/trust_in_the_lord_youth_music_2022.pdf<br />
 https://www.churchofjesuschrist.org/learn/youth-theme-2022?lang=eng<br />
 Rehearsals:<br />
@@ -83,11 +83,11 @@ https://docs.google.com/forms/d/e/1FAIpQLSeamb2DBtF7ALT4sc4F_PMPF8TCXRummqSYcNuB
 <br />
 <br />
 **Other Notes ============**<br />
-**Come Follow Me Group""<br />
+**Come Follow Me Group"<br />
 <br />
 **Bible Study Group**<br />
 Invite your friends and those you minister to!<br />
-7:00PM on Thursdays on Zoom""<br />
+7:00PM on Thursdays on Zoom"<br />
 https://zoom.us/j/8978612608?pwd=bnh5NTJrN0hiUjM3OVZ5STBMRlVzUT09<br />
 <br />
  **Join the Falls Church Ward** members and friends Facebook and Instagram (@fallschurchwardfriends) pages.  <br />

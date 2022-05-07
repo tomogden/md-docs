@@ -7,7 +7,9 @@ Brothers and Sisters,<br />
 With the Lord’s instruction to the people of Israel to build a tabernacle in the wilderness, He provided them with instruction to become a holy people:<br />
 <br />
 “For I am the Lord your God: ye shall therefore sanctify yourselves, and ye shall be holy; for I am holy...for I am the Lord that bringeth you up out of the land of Egypt, to be your God: ye shall therefore be holy, for I am holy.” (Leviticus 11:44-45)<br />
+<br />
 “Speak unto all the congregation of the children of Israel, and say unto them, Ye shall be holy: for I the Lord your God am holy.” (Leviticus 19:2)<br />
+<br />
 “Sanctify yourselves therefore, and be ye holy: for I am the Lord your God.” (Leviticus 20:7, 26)<br />
 <br />
 Things that are holy are “Sacred, having a godly character, or spiritually and morally pure. The opposite of holy is common or profane.” (Guide to the Scriptures). President Eyring has taught:<br />
@@ -22,6 +24,7 @@ The hymn “More Holiness Give Me” suggests a way to pray for help in becoming
 &nbsp;&nbsp;More blessed and holy— <br />
 &nbsp;&nbsp;More, Savior, like thee. <br />
 <br />
+
 Whatever our personal circumstance, wherever we may be on the covenant path home, may our prayers for greater holiness be answered. I know that as our petition is granted, our happiness will increase. It may come slowly, but it will come. I have that assurance from a loving Heavenly Father and His Beloved Son, Jesus Christ.<br />
 <br />
 Our efforts to seek greater personal holiness will lead us to the Savior, Jesus Christ, and qualify us for service in temple and as missionaries. These are blessings that we each might enjoy through the blessings of the gospel of Christ.<br />

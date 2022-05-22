@@ -46,29 +46,45 @@ Rehearsals:<br />
 - Sunday May 15th 3:00pm (RS room of the stake center)<br />
 - Sunday May 22nd 6:00pm (Chapel of the stake center)<br />
 <br />
+
+**Munch & Mingle**<br />
+Sunday, May 22, 2022, 3:00 PM<br />
+@ *Stake Center*<br />
+Everyone is invited to stay after second hour on Sunday for a short Munch & Mingle.  Please click here and sign up to bring something to share.  We are looking for """"finger foods""""- bowl of fruit, plate of veggies, plate of desserts, etc.<br />
+https://www.signupgenius.com/go/4090448a9ab2aabf49-falls<br />
+<br />
+
+**Youth Conference Kick-Off Fireside**<br />
+Sunday, May 22, 2022, 7:00 PM<br />
+@ *Stake Center*<br />
+<br />
+
 **DC Temple Parking Reservations**<br />
 Thursday, April 28 - Saturday, June 11, 2022<br />
 @ *9900 Stoneybrook Dr, Kensington, MD 20895*<br />
 Open for friends that would like to attend the open house. Visit www.dctemple.org for additional information.<br />
 www.dctemple.org<br />
 <br />
+
 **Inova Blood Drive**<br />
 Saturday, June 11, 2022<br />
 @ *Stake Center*<br />
 [Sign up here to donate blood.](https://www.inovabloodsaves.org/index.cfm?group=op&step=2&opid=29916&opidh=E09BEECB84950AB800163058E1127FD4&idt=44691.5576389)<br />
 [Sign up here to volunteer at the drive.](https://www.signupgenius.com/go/5080A48ABA72FA4F58-blood2)<br />
 <br />
+
 **Stake Youth Conference Trip**<br />
 Thursday, June 23 - Saturday, June 25, 2022<br />
 @ *Meet at Stake Center*<br />
 The you will be traveling to Palmyra to visit Church History sites. <br />
 https://docs.google.com/forms/d/e/1FAIpQLSeamb2DBtF7ALT4sc4F_PMPF8TCXRummqSYcNuBcbHDtyS11g/viewform<br />
 <br />
-**Munch & Mingle**<br />
-Sunday, May 22, 2022, 3:00 PM<br />
-@ *Stake Center*<br />
-Everyone is invited to stay after second hour on Sunday for a short Munch & Mingle.  Please click here and sign up to bring something to share.  We are looking for """"finger foods""""- bowl of fruit, plate of veggies, plate of desserts, etc.<br />
-https://www.signupgenius.com/go/4090448a9ab2aabf49-falls<br />
+
+**Oakton Stake Dance**<br />
+Saturday, July 16, 2022, 8:00 PM<br />
+@ *Oakton Stake Center, 2719 Hunter Mill Rd., Oakton, VA*<br />
+Cost: $2<br />
+Ages: Turning 14 in 2022 - through high school<br />
 <br />
 <br />
 <br />
@@ -78,14 +94,17 @@ https://www.signupgenius.com/go/4090448a9ab2aabf49-falls<br />
 Tuesdays at 7:00pm on Zoom<br />
 https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <br />
+
 **Bible Study Group**<br />
 Invite your friends and those you minister to!<br />
 7:00PM on Thursdays on Zoom""<br />
 https://zoom.us/j/8978612608?pwd=bnh5NTJrN0hiUjM3OVZ5STBMRlVzUT09<br />
 <br />
+
  **Join the Falls Church Ward** members and friends Facebook and Instagram (@fallschurchwardfriends) pages.  <br />
  **Subscribe to the Falls Church Ward listserv** by sending an email to: falls-church-ward-listserv+subscribe@googlegroups.com  <br />
 <br />
+
 For more events and their details see the printed ward bulletin.  <br />
 <br />
 

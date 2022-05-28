@@ -1,70 +1,54 @@
 **A N N O U N C E M E N T S**<br />
-Sunday, May 22, 2022<br />
+Sunday, May 29, 2022<br />
 <br />
 
-**Bishop's Message ============**<br />
-Brothers and Sisters, <br />
+<hr />
+
+**BISHOP'S MESSAGE**<br />
+Brothers and Sisters,<br />
 <br />
-Throughout the Book of Deuteronomy, the Lord counsels the Israelites to always remember their deliverance from Egypt:<br />
+Speaking to the National Press Club downtown this week, Elder David Bednar commented:<br />
+&nbsp;&nbsp;&nbsp;*“Sadly, the news of our day is filled with heartache-including the tragic events and the loss of life most recently in Texas. We mourn with those who mourn and pray for all those impacted by this senseless act of violence. My prayer and my blessing is that we will be guided, comforted, and helped in our important work, and that victims, families, and nations might be granted the peace that surpasses all understanding - the peace that comes from Jesus Christ.”* <br />
 <br />
-&nbsp;&nbsp;*“…remember that thou wast a servant in the Land of Egypt, and that the Lord thy God brought thee out thence through a mighty hand and by a stretched arm…”* (5:15)<br />
-&nbsp;&nbsp;*“Thou shalt not be afraid…but shall well remember what the Lord thy God did unto Pharoah, and unto all Egypt…”* (7:18)<br />
-&nbsp;&nbsp;*“And thou shalt remember that thou wast a bondman in the land of Egypt, and the Lord thy God redeemed thee…”* (15:15)<br />
+The prophet Joshua invited his people to “cleave unto the Lord your God, as ye have done unto this day” (Joshua 23:8; Jacob 6:5). In our day, prophets also point us to Christ, and urge us to take time for the Lord each day. <br />
 <br />
-There are many different ways to remember the Lord and acknowledge His deliverance in our lives. In the Spanish translation of the scriptures, the word remember is often translated as a word associated with something being recorded – “recordar” is that word. But in some instances (e.g., D&C 4:6, 2 Nephi 9:39, Alma 5:52) the English word for remember is translated to Spanish as having something present in our minds: “tened presente.”<br />
+In April 2021, President Nelson encouraged us:<br />
+&nbsp;&nbsp;&nbsp;*“For a time, the pandemic has canceled activities that would normally fill our lives. Soon we may be able to choose to fill that time again with the noise and commotion of the world. Or we can use our time to hear the voice of the Lord whispering His guidance, comfort, and peace. Quiet time is sacred time—time that will facilitate personal revelation and instill peace.”* <br />
 <br />
-As we partake of the sacrament, we covenant each week to “always remember” Jesus Christ (D&C 20:77,79; Moroni 4, 5). What if we take this at face value, to always remember Him, to have Him present – in our daily prayers, but also in our daily work and in our interactions with others? Remembering Him is a key to unlocking the power of Jesus Christ in our lives: “…let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God…and the Holy Ghost shall be thy constant companion…” (D&C 121:45-46).  <br />
-<br />
-And as we remember Him, He remembers us: “Behold, I have graven thee upon the palms of my hands” (1 Nephi 21:16). May we ever remember Him and realize the blessing of the sacrament each week.<br />
+As we make time for Christ, we can know Him as the “founder of peace, yea, even the Lord, who has redeemed his people” (Mosiah 15:18). <br />
 <br />
 Bishop Jardine<br />
 <br />
 
+<hr />
 
-<br />
-
-
-**Sunday Meeting Schedule ============**<br />
+**SUNDAY MEETING SCHEDULE**<br />
 1:00 pm - 2:00 pm: Sacrament Meeting in person and via Zoom. <br />
 2:10 pm - 3:00 pm: Second Hour Schedule (see bulletin). <br />
 https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <br />
 
 
+<hr />
+
+**NEWS**<br />
+**ARTICLE: Come And See: A Falls Church Invitation to the Washington DC Temple Open House**<br />
+https://medium.com/@jqjardine/come-and-see-a-falls-church-invitation-to-the-washington-dc-temple-open-house-c9483a6cf195<br />
+<br />
+
+**Mission Calls**<br />
+Ethan Huff *to* New Zealand Hamilton, reporting in September<br />
 <br />
 
 
-**Weekly Announcements ============**<br />
-**Stake Youth Choir**<br />
-Sunday, May 22 - Sunday, May 22, 2022, 7:00 PM<br />
-@ *Stake Center*<br />
-We are singing “Trust in the Lord” the 2022 mutual theme song at the stake youth conference kick-off on May 22nd.  We need soloists and all voices for the chorus.  Come have fun and sing with us!  Sheet music and the recording are linked below:<br />
-- [Sheet Music](https://assets.ldscdn.org/3e/99/3e994bef2935fdcce20db93f660873225f3b2073/trust_in_the_lord_youth_music_2022.pdf)<br />
-- [Recording](https://www.churchofjesuschrist.org/learn/youth-theme-2022?lang=eng)<br />
-Rehearsals:<br />
-- Sunday May 1st 3:00pm ( RS room of the stake center)<br />
-- Sunday May 15th 3:00pm (RS room of the stake center)<br />
-- Sunday May 22nd 6:00pm (Chapel of the stake center)<br />
-<br />
+<hr />
 
-**Munch & Mingle**<br />
-Sunday, May 22, 2022, 3:00 PM<br />
-@ *Stake Center*<br />
-Everyone is invited to stay after second hour on Sunday for a short Munch & Mingle.  Please click here and sign up to bring something to share.  We are looking for """"finger foods""""- bowl of fruit, plate of veggies, plate of desserts, etc.<br />
-https://www.signupgenius.com/go/4090448a9ab2aabf49-falls<br />
-<br />
-
-**Youth Conference Kick-Off Fireside**<br />
-Sunday, May 22, 2022, 7:00 PM<br />
-@ *Stake Center*<br />
-<br />
-
+**WEEKLY ANNOUNCEMENTS**<br />
 **DC Temple Parking Reservations**<br />
 Thursday, April 28 - Saturday, June 11, 2022<br />
 @ *9900 Stoneybrook Dr, Kensington, MD 20895*<br />
 Open for friends that would like to attend the open house. Visit www.dctemple.org for additional information.<br />
 www.dctemple.org<br />
-<br />
 
 **Inova Blood Drive**<br />
 Saturday, June 11, 2022<br />
@@ -78,19 +62,29 @@ Thursday, June 23 - Saturday, June 25, 2022<br />
 @ *Meet at Stake Center*<br />
 The you will be traveling to Palmyra to visit Church History sites. <br />
 https://docs.google.com/forms/d/e/1FAIpQLSeamb2DBtF7ALT4sc4F_PMPF8TCXRummqSYcNuBcbHDtyS11g/viewform<br />
-<br />
 
 **Oakton Stake Dance**<br />
 Saturday, July 16, 2022, 8:00 PM<br />
 @ *Oakton Stake Center, 2719 Hunter Mill Rd., Oakton, VA*<br />
 Cost: $2<br />
 Ages: Turning 14 in 2022 - through high school<br />
-<br />
+
+**YW Camp**<br />
+Tuesday, June 28 - Friday, July 1, 2022<br />
+@ *Verdun Adventure Bound*<br />
+YCLs will report Monday, June 27. <br />
+
+**DC Temple Rededication**<br />
+Sunday, August 14, 2022, 10:00 a.m<br />
+@ *9900 Stoneybrook Dr, Kensington, MD 20895*<br />
+Three Session Start Times: 10:00 a.m., 1:30 p.m., and 5:00 p.m.<br />
 <br />
 <br />
 
-**Other Notes ============**<br />
-**Come Follow Me Group""<br />
+<hr />
+
+**OTHER NOTES**<br />
+**Come Follow Me Group**<br />
 Tuesdays at 7:00pm on Zoom<br />
 https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <br />

@@ -1,4 +1,4 @@
-"**A N N O U N C E M E N T S**<br />
+**A N N O U N C E M E N T S**<br />
 Sunday, June 5, 2022<br />
 <br />
 
@@ -52,6 +52,7 @@ Thursday, April 28 - Saturday, June 11, 2022<br />
 @ *9900 Stoneybrook Dr, Kensington, MD 20895*<br />
 Open for friends that would like to attend the open house. Visit www.dctemple.org for additional information.<br />
 www.dctemple.org<br />
+
 **Inova Blood Drive**<br />
 Saturday, June 11, 2022<br />
 @ *Stake Center*<br />
@@ -66,10 +67,12 @@ Sunday, June 12, 2022, 3:15 PM<br />
 Sunday, June 12, 2022, 6:00 PM<br />
 @ *Scotts Run Chapel*<br />
 The Tysons Ward has invited all youth in the stake to attend a fireside with artist Jonathan Linton, whose paintings are in the DC and Philadelphia temples.<br />
+<br />
 **Primary Pinewood Derby**<br />
 Wednesday, June 15, 2022, 6:00 PM<br />
 @ *Stake Center Cultural Hall*<br />
 We're having a pinewood derby! All ward members are invited to attend and cheer on our primary kids. If parents have any questions or need help with their cars, they can email or text Romney Duerden.<br />
+<br />
 **Stake Youth Conference Trip**<br />
 Thursday, June 23 - Saturday, June 25, 2022<br />
 @ *Meet at Stake Center*<br />
@@ -79,15 +82,18 @@ https://docs.google.com/forms/d/e/1FAIpQLSeamb2DBtF7ALT4sc4F_PMPF8TCXRummqSYcNuB
 Tuesday, June 28 - Friday, July 1, 2022<br />
 @ *Verdun Adventure Bound*<br />
 YCLs will report Monday, June 27. <br />
+<br />
 **Oakton Stake Dance**<br />
 Saturday, July 16, 2022, 8:00 PM<br />
 @ *Oakton Stake Center, 2719 Hunter Mill Rd., Oakton, VA*<br />
 Cost: $2<br />
 Ages: Turning 14 in 2022 - through high school<br />
+<br />
 **DC Temple Rededication**<br />
 Sunday, August 14, 2022, 10:00 a.m<br />
 @ *9900 Stoneybrook Dr, Kensington, MD 20895*<br />
 Three Session Start Times: 10:00 a.m., 1:30 p.m., and 5:00 p.m.<br />
+<br />
 <br />
 <br />
 
@@ -108,5 +114,3 @@ https://zoom.us/j/8978612608?pwd=bnh5NTJrN0hiUjM3OVZ5STBMRlVzUT09<br />
 <br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
-
-"

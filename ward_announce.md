@@ -1,5 +1,5 @@
-**A N N O U N C E M E N T S**<br />
-Sunday, June 5, 2022<br />
+"**A N N O U N C E M E N T S**<br />
+Sunday, June 12, 2022<br />
 <br />
 
 <hr />
@@ -7,15 +7,15 @@ Sunday, June 5, 2022<br />
 **BISHOP'S MESSAGE**<br />
 Brothers and Sisters,<br />
 <br />
-As the Lord reduced Gideon’s military force from 32,000 to 300, He made it clear to Gideon that He would be their deliverer:<br />
+As we read of young Samuel's experience of learning to hear and obey the Lord's voice, three questions from the Come Follow Me manual are instructive.<br />
+- What do you learn from Samuel about hearing and obeying the Lord’s voice? <br />
+- What experiences have you had with hearing His voice? <br />
+- What opportunities do you have, like Eli, to help others recognize when the Lord is speaking to them?<br />
+Learning to hear the voice of the Lord, and then to obey that voice as did Samuel (""Speak Lord, for thy servant heareth."" 1 Sam 3:11) is of paramount importance. President Nelson recently spoke of the blessings of seeking and hearing the voice of the Lord:<br />
 <br />
-*“And the Lord said unto Gideon, The people that are with thee are too many for me to give the Midianites into their hands, lest Israel vaunt themselves against me, saying, Mine own hand hath saved me.”* (Judges 7:2)<br />
+*“When the Savior atoned for all mankind, He opened a way that those who follow Him can have access to His healing, strengthening, and redeeming power. These spiritual privileges are available to all who seek to hear Him and follow Him. My dear brothers and sisters, with all the pleadings of my heart, I urge you to get on the covenant path and stay there. Experience the joy of repenting daily. Learn about God and how He works. Seek and expect miracles. Strive to end conflict in your life.”*<br />
 <br />
-And by His miraculous deliverance, as with Noah, Joseph, Moses, and Joshua before, the Lord delivered Gideon’s outnumbered forces from their enemy. Our living prophet, President Nelson, recently issued a promise regarding the Lord as a “God of Miracles”:<br />
-<br />
-*“Moroni assured us that “God has not ceased to be a God of miracles.” Every book of scripture demonstrates how willing the Lord is to intervene in the lives of those who believe in Him. He parted the Red Sea for Moses, helped Nephi retrieve the brass plates, and restored His Church through the Prophet Joseph Smith. Each of these miracles took time and may not have been exactly what those individuals originally requested from the Lord. In the same way, the Lord will bless you with miracles if you believe in Him, “doubting nothing.” Do the spiritual work to seek miracles. Prayerfully ask God to help you exercise that kind of faith. I promise that you can experience for yourself that Jesus Christ “giveth power to the faint; and to them that have no might he increaseth strength.” Few things will accelerate your spiritual momentum more than realizing the Lord is helping you to move a mountain in your life.”*<br />
-<br />
-Many of us have recently experienced miracles around the DC Temple open house, as friends and neighbors have felt the Savior’s love and learned more about His restored church by visiting the open house. As we reflect on these experiences and pray for missionary opportunities daily, the Lord will inspire us to help these individuals take additional steps closer to the Savior.  We can trust in the Lord — that He can do His work — and join Him to seek miracles in the lives of loved ones. <br />
+Regularly hearing the voice of the Lord through the living prophet is a particular miracle of the ongoing restoration. May we all seek and receive this blessing.<br />
 <br />
 Bishop Jardine<br />
 <br />
@@ -28,7 +28,7 @@ Bishop Jardine<br />
 
 <hr />
 
-**FAST SUNDAY MEETING SCHEDULE**<br />
+**SUNDAY MEETING SCHEDULE**<br />
 1:00 pm - 2:00 pm: Sacrament Meeting in person and via Zoom. <br />
 2:10 pm - 3:00 pm: Second Hour Schedule (see bulletin). <br />
 https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
@@ -38,8 +38,8 @@ https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <hr />
 
 **NEWS**<br />
-**ARTICLE: Come And See: A Falls Church Invitation to the Washington DC Temple Open House**<br />
-https://medium.com/p/c9483a6cf195<br />
+**Update Your Photos**<br />
+We are asking ward members to add or update their photos in the church directory, if they haven't done so recently. This can be done with the Tools app, the church website, or by emailing them to me or Adam. If they need help they can reach out to us as well.<br />
 <br />
 <br />
 
@@ -47,27 +47,6 @@ https://medium.com/p/c9483a6cf195<br />
 <hr />
 
 **WEEKLY ANNOUNCEMENTS**<br />
-**DC Temple Parking Reservations**<br />
-Thursday, April 28 - Saturday, June 11, 2022<br />
-@ *9900 Stoneybrook Dr, Kensington, MD 20895*<br />
-Open for friends that would like to attend the open house. Visit www.dctemple.org for additional information.<br />
-www.dctemple.org<br />
-
-**Inova Blood Drive**<br />
-Saturday, June 11, 2022<br />
-@ *Stake Center*<br />
-[Sign up here to donate blood.](https://www.inovabloodsaves.org/index.cfm?group=op&step=2&opid=29916&opidh=E09BEECB84950AB800163058E1127FD4&idt=44691.5576389)<br />
-[Sign up here to volunteer at the drive.](https://www.signupgenius.com/go/5080A48ABA72FA4F58-blood2)<br />
-<br />
-**YCL Meeting for YW Camp**<br />
-Sunday, June 12, 2022, 3:15 PM<br />
-@ *Stake Center Primary Room*<br />
-<br />
-**Fireside: Artist Jonathan Linton**<br />
-Sunday, June 12, 2022, 6:00 PM<br />
-@ *Scotts Run Chapel*<br />
-The Tysons Ward has invited all youth in the stake to attend a fireside with artist Jonathan Linton, whose paintings are in the DC and Philadelphia temples.<br />
-<br />
 **Primary Pinewood Derby**<br />
 Wednesday, June 15, 2022, 6:00 PM<br />
 @ *Stake Center Cultural Hall*<br />
@@ -114,3 +93,5 @@ https://zoom.us/j/8978612608?pwd=bnh5NTJrN0hiUjM3OVZ5STBMRlVzUT09<br />
 <br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
+
+"

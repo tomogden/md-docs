@@ -1,4 +1,4 @@
-**A N N O U N C E M E N T S**<br />
+"**A N N O U N C E M E N T S**<br />
 Sunday, June 5, 2022<br />
 <br />
 
@@ -47,10 +47,6 @@ https://medium.com/p/c9483a6cf195<br />
 <hr />
 
 **WEEKLY ANNOUNCEMENTS**<br />
-**Stake Seminary Graduation**<br />
-Sunday, June 5, 2022, 5:30 PM<br />
-@ *Stake Center*<br />
-<br />
 **DC Temple Parking Reservations**<br />
 Thursday, April 28 - Saturday, June 11, 2022<br />
 @ *9900 Stoneybrook Dr, Kensington, MD 20895*<br />
@@ -62,6 +58,18 @@ Saturday, June 11, 2022<br />
 [Sign up here to donate blood.](https://www.inovabloodsaves.org/index.cfm?group=op&step=2&opid=29916&opidh=E09BEECB84950AB800163058E1127FD4&idt=44691.5576389)<br />
 [Sign up here to volunteer at the drive.](https://www.signupgenius.com/go/5080A48ABA72FA4F58-blood2)<br />
 <br />
+**YCL Meeting for YW Camp**<br />
+Sunday, June 12, 2022, 3:15 PM<br />
+@ *Stake Center Primary Room*<br />
+<br />
+**Fireside: Artist Jonathan Linton**<br />
+Sunday, June 12, 2022, 6:00 PM<br />
+@ *Scotts Run Chapel*<br />
+The Tysons Ward has invited all youth in the stake to attend a fireside with artist Jonathan Linton, whose paintings are in the DC and Philadelphia temples.<br />
+**Primary Pinewood Derby**<br />
+Wednesday, June 15, 2022, 6:00 PM<br />
+@ *Stake Center Cultural Hall*<br />
+We're having a pinewood derby! All ward members are invited to attend and cheer on our primary kids. If parents have any questions or need help with their cars, they can email or text Romney Duerden.<br />
 **Stake Youth Conference Trip**<br />
 Thursday, June 23 - Saturday, June 25, 2022<br />
 @ *Meet at Stake Center*<br />
@@ -80,10 +88,6 @@ Ages: Turning 14 in 2022 - through high school<br />
 Sunday, August 14, 2022, 10:00 a.m<br />
 @ *9900 Stoneybrook Dr, Kensington, MD 20895*<br />
 Three Session Start Times: 10:00 a.m., 1:30 p.m., and 5:00 p.m.<br />
-**YCL Meeting for YW Camp**<br />
-Sunday, June 12, 2022, 3:15 PM<br />
-@ *Stake Center Primary Room*<br />
-<br />
 <br />
 <br />
 
@@ -105,3 +109,4 @@ https://zoom.us/j/8978612608?pwd=bnh5NTJrN0hiUjM3OVZ5STBMRlVzUT09<br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
 
+"

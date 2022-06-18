@@ -1,5 +1,5 @@
-"**A N N O U N C E M E N T S**<br />
-Sunday, June 12, 2022<br />
+**A N N O U N C E M E N T S**<br />
+Sunday, June 19, 2022<br />
 <br />
 
 <hr />
@@ -7,24 +7,16 @@ Sunday, June 12, 2022<br />
 **BISHOP'S MESSAGE**<br />
 Brothers and Sisters,<br />
 <br />
-As we read of young Samuel's experience of learning to hear and obey the Lord's voice, three questions from the Come Follow Me manual are instructive.<br />
-- What do you learn from Samuel about hearing and obeying the Lord’s voice? <br />
-- What experiences have you had with hearing His voice? <br />
-- What opportunities do you have, like Eli, to help others recognize when the Lord is speaking to them?<br />
-Learning to hear the voice of the Lord, and then to obey that voice as did Samuel (""Speak Lord, for thy servant heareth."" 1 Sam 3:11) is of paramount importance. President Nelson recently spoke of the blessings of seeking and hearing the voice of the Lord:<br />
+When the Israelite King, Saul, was disobedient to the Lord’s instructions, the Prophet Samuel knew that he needed the Lord’s guidance as he prepared to meet Saul. Seeking revelation, Samuel *“cried unto the Lord all night…and rose…early in the morning”* (1 Sam 15:11-12). Samuel’s inspired counsel the next day, including important teachings on obedience and humility, followed personal prayer, seeking the Lord’s will with real intent.<br />
 <br />
-*“When the Savior atoned for all mankind, He opened a way that those who follow Him can have access to His healing, strengthening, and redeeming power. These spiritual privileges are available to all who seek to hear Him and follow Him. My dear brothers and sisters, with all the pleadings of my heart, I urge you to get on the covenant path and stay there. Experience the joy of repenting daily. Learn about God and how He works. Seek and expect miracles. Strive to end conflict in your life.”*<br />
+Speaking of our personal opportunity to commune with God, President Nelson recently taught:<br />
 <br />
-Regularly hearing the voice of the Lord through the living prophet is a particular miracle of the ongoing restoration. May we all seek and receive this blessing.<br />
+*“God knows all and sees all. In all of eternity, no one will ever know you or care about you more than He does. No one will ever be closer to you than He is. You can pour out your heart to Him and trust Him to send the Holy Ghost and angels to care for you. He demonstrated His ultimate love when He sent His Only Begotten Son to die for you — to be your Savior and your Redeemer!”*<br />
+<br />
+God hears every sincere prayer. As we seek to hear Him, we can be blessed as we consider our own pleadings with the Lord in prayer. Rather than praying to remove another’s agency, for example, we may pray to be empowered by the Lord to change what we can change. As we learn to *“counsel with the Lord”* (Alma 37:37), prayer will truly build and strengthen our relationship with our loving Father in Heaven (D&C 19:38, 3 Nephi 18:20). May we all receive this blessing.<br />
 <br />
 Bishop Jardine<br />
 <br />
-
-
-<hr />
-
-<br />
-
 
 <hr />
 
@@ -39,7 +31,7 @@ https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 
 **NEWS**<br />
 **Update Your Photos**<br />
-We are asking ward members to add or update their photos in the church directory, if they haven't done so recently. This can be done with the Tools app, the church website, or by emailing them to me or Adam. If they need help they can reach out to us as well.<br />
+We want everyone to get to know eachother better. There are still a lot of old or missing photos in the directory. Please add or update your photos in the church directory, if you haven't done so recently. Use the Tools app, the church website, or just email them to Brother LaPointe or Adam Andersen. Reach out to the Ward Clerks if you need help.<br />
 <br />
 <br />
 
@@ -47,16 +39,12 @@ We are asking ward members to add or update their photos in the church directory
 <hr />
 
 **WEEKLY ANNOUNCEMENTS**<br />
-**Primary Pinewood Derby**<br />
-Wednesday, June 15, 2022, 6:00 PM<br />
-@ *Stake Center Cultural Hall*<br />
-We're having a pinewood derby! All ward members are invited to attend and cheer on our primary kids. If parents have any questions or need help with their cars, they can email or text Romney Duerden.<br />
-<br />
 **Stake Youth Conference Trip**<br />
 Thursday, June 23 - Saturday, June 25, 2022<br />
 @ *Meet at Stake Center*<br />
 The you will be traveling to Palmyra to visit Church History sites. <br />
 https://docs.google.com/forms/d/e/1FAIpQLSeamb2DBtF7ALT4sc4F_PMPF8TCXRummqSYcNuBcbHDtyS11g/viewform<br />
+
 **YW Camp**<br />
 Tuesday, June 28 - Friday, July 1, 2022<br />
 @ *Verdun Adventure Bound*<br />
@@ -80,7 +68,7 @@ Three Session Start Times: 10:00 a.m., 1:30 p.m., and 5:00 p.m.<br />
 
 **OTHER NOTES**<br />
 **Come Follow Me Group**<br />
-Tuesdays at 7:00pm on Zoom<br />
+Mondays at 7:00pm on Zoom<br />
 https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <br />
 **Bible Study Group**<br />
@@ -93,5 +81,3 @@ https://zoom.us/j/8978612608?pwd=bnh5NTJrN0hiUjM3OVZ5STBMRlVzUT09<br />
 <br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
-
-"

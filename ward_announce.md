@@ -1,5 +1,5 @@
 **A N N O U N C E M E N T S**<br />
-Sunday, June 19, 2022<br />
+Sunday, June 26, 2022<br />
 <br />
 
 <hr />
@@ -7,16 +7,29 @@ Sunday, June 19, 2022<br />
 **BISHOP'S MESSAGE**<br />
 Brothers and Sisters,<br />
 <br />
-When the Israelite King, Saul, was disobedient to the Lord’s instructions, the Prophet Samuel knew that he needed the Lord’s guidance as he prepared to meet Saul. Seeking revelation, Samuel *“cried unto the Lord all night…and rose…early in the morning”* (1 Sam 15:11-12). Samuel’s inspired counsel the next day, including important teachings on obedience and humility, followed personal prayer, seeking the Lord’s will with real intent.<br />
+Quoting from 1 Kings 3:<br />
+*“In Gibeon the Lord appeared to Solomon in a dream by night: and God said, Ask what I shall give thee. And Solomon said…give thy servant an understanding heart to judge thy people, that I may discern between good and bad…”*<br />
 <br />
-Speaking of our personal opportunity to commune with God, President Nelson recently taught:<br />
+With Solomon’s petition to the Lord for the gift of discernment, we may ask ourselves how we might also develop spiritual gifts, including the gift of discernment (see “Quick to Observe,” Elder David A Bednar).<br />
 <br />
-*“God knows all and sees all. In all of eternity, no one will ever know you or care about you more than He does. No one will ever be closer to you than He is. You can pour out your heart to Him and trust Him to send the Holy Ghost and angels to care for you. He demonstrated His ultimate love when He sent His Only Begotten Son to die for you — to be your Savior and your Redeemer!”*<br />
+President Nelson recently taught of the importance for each of us to seek the spiritual gift of testimony:<br />
+*“Do you want to know Jesus Christ better? …Do you want to experience the sweet, soothing power of the Atonement of Jesus Christ working in your life? Seeking to answer these questions will require effort—much effort. I plead with you to take charge of your testimony. Work for it. Own it. Care for it. Nurture it so that it will grow. Feed it truth…Engage in daily, earnest, humble prayer. Nourish yourself in the words of ancient and modern prophets. Ask the Lord to teach you how to hear Him better. Spend more time in the temple and in family history work. As you make your testimony your highest priority, watch for miracles to happen in your life.”*<br />
 <br />
-God hears every sincere prayer. As we seek to hear Him, we can be blessed as we consider our own pleadings with the Lord in prayer. Rather than praying to remove another’s agency, for example, we may pray to be empowered by the Lord to change what we can change. As we learn to *“counsel with the Lord”* (Alma 37:37), prayer will truly build and strengthen our relationship with our loving Father in Heaven (D&C 19:38, 3 Nephi 18:20). May we all receive this blessing.<br />
+Let us each seek the “best gifts” (1 Coe 12:31), that we might also walk in the Lord’s “ways” (1 Kings 3:14).<br />
 <br />
 Bishop Jardine<br />
 <br />
+--<br />
+<br />
+“Quick to Observe”, by David A. Bednar<br />
+https://www.churchofjesuschrist.org/study/ensign/2006/12/quick-to-observe?lang=eng<br />
+<br />
+
+
+<hr />
+
+<br />
+
 
 <hr />
 
@@ -30,6 +43,9 @@ https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <hr />
 
 **NEWS**<br />
+**Hear Him, by Camille Johnson**<br />
+https://www.churchofjesuschrist.org/media/video/2020-02-2390-how-i-hearhim-president-camille-n-johnson?lang=eng&alang=eng&collectionId=f3ee71a22eaa47608f71479976bda74e<br />
+<br />
 **Update Your Photos**<br />
 We want everyone to get to know eachother better. There are still a lot of old or missing photos in the directory. Please add or update your photos in the church directory, if you haven't done so recently. Use the Tools app, the church website, or just email them to Brother LaPointe or Adam Andersen. Reach out to the Ward Clerks if you need help.<br />
 <br />
@@ -39,12 +55,6 @@ We want everyone to get to know eachother better. There are still a lot of old o
 <hr />
 
 **WEEKLY ANNOUNCEMENTS**<br />
-**Stake Youth Conference Trip**<br />
-Thursday, June 23 - Saturday, June 25, 2022<br />
-@ *Meet at Stake Center*<br />
-The you will be traveling to Palmyra to visit Church History sites. <br />
-https://docs.google.com/forms/d/e/1FAIpQLSeamb2DBtF7ALT4sc4F_PMPF8TCXRummqSYcNuBcbHDtyS11g/viewform<br />
-
 **YW Camp**<br />
 Tuesday, June 28 - Friday, July 1, 2022<br />
 @ *Verdun Adventure Bound*<br />
@@ -81,3 +91,4 @@ https://zoom.us/j/8978612608?pwd=bnh5NTJrN0hiUjM3OVZ5STBMRlVzUT09<br />
 <br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
+

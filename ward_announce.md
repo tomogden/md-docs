@@ -1,4 +1,4 @@
-**A N N O U N C E M E N T S**<br />
+"**A N N O U N C E M E N T S**<br />
 Sunday, June 26, 2022<br />
 <br />
 
@@ -60,12 +60,22 @@ Tuesday, June 28 - Friday, July 1, 2022<br />
 @ *Verdun Adventure Bound*<br />
 YCLs will report Monday, June 27. <br />
 <br />
+**Annual Ward Fourth of July Breakfast**<br />
+Monday, July 4, 2022, 9:00 AM<br />
+@ *Roberts Park, 510 Lynn St, Falls Church, 22046*<br />
+We'll gather for sociality and breakfast, hear a patriotic message, and sing a few patriotic anthems.<br />
+Bring: *Folding chairs, picnic blankets, and a side of fruit to share; breakfast will be provided.*<br />
+NOTE: Roberts Park has limited parking and no bathrooms. Walk/ride bikes if you are close; park includes a large field, basketball court, and playground for kids activities.<br />
 **Oakton Stake Dance**<br />
 Saturday, July 16, 2022, 8:00 PM<br />
 @ *Oakton Stake Center, 2719 Hunter Mill Rd., Oakton, VA*<br />
 Cost: $2<br />
 Ages: Turning 14 in 2022 - through high school<br />
 <br />
+**Youth Combined Temple Trip**<br />
+Friday, July 22, 2022, 6:00 AM<br />
+@ *Meet at Stake Center*<br />
+Our last chance to visit the Philadelphia Temple, all youth are invited to participate. <br />
 **DC Temple Rededication**<br />
 Sunday, August 14, 2022, 10:00 a.m<br />
 @ *9900 Stoneybrook Dr, Kensington, MD 20895*<br />
@@ -92,3 +102,4 @@ https://zoom.us/j/8978612608?pwd=bnh5NTJrN0hiUjM3OVZ5STBMRlVzUT09<br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
 
+"

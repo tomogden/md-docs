@@ -1,5 +1,5 @@
-**A N N O U N C E M E N T S**<br />
-Sunday, June 26, 2022<br />
+"**A N N O U N C E M E N T S**<br />
+Sunday, July 10, 2022<br />
 <br />
 
 <hr />
@@ -7,22 +7,17 @@ Sunday, June 26, 2022<br />
 **BISHOP'S MESSAGE**<br />
 Brothers and Sisters,<br />
 <br />
-Quoting from 1 Kings 3:<br />
-*“In Gibeon the Lord appeared to Solomon in a dream by night: and God said, Ask what I shall give thee. And Solomon said…give thy servant an understanding heart to judge thy people, that I may discern between good and bad…”*<br />
+When Naaman, a captain in the Syrian army, sought a miracle from Elisha, he was initially “wroth” with the instruction to “wash in the Jordan seven times” to be healed from leprosy. An Israelite servant nevertheless persuaded Naaman to heed Elisha:<br />
+*“…if the prophet had bid thee do some great thing, wouldest thou not have done it? how much rather then, when [Elisha] saith to thee, Wash, and be clean? Then went [Naaman] down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean. (2 Kings 5:13-14)”*<br />
 <br />
-With Solomon’s petition to the Lord for the gift of discernment, we may ask ourselves how we might also develop spiritual gifts, including the gift of discernment (see “Quick to Observe,” Elder David A Bednar).<br />
+Like Naaman, we may also initially look for reasons to follow prophetic invitations. Naaman first reasoned that Elisha the prophet should have come meet him directly instead of sending a servant to speak with him. Next, if a dip in water was going to be the solution, surely the rivers of Syria were “better than all the waters of Israel” and might be more suitable for this process. Fortunately, Naaman repented and was miraculously cleansed.<br />
 <br />
-President Nelson recently taught of the importance for each of us to seek the spiritual gift of testimony:<br />
-*“Do you want to know Jesus Christ better? …Do you want to experience the sweet, soothing power of the Atonement of Jesus Christ working in your life? Seeking to answer these questions will require effort—much effort. I plead with you to take charge of your testimony. Work for it. Own it. Care for it. Nurture it so that it will grow. Feed it truth…Engage in daily, earnest, humble prayer. Nourish yourself in the words of ancient and modern prophets. Ask the Lord to teach you how to hear Him better. Spend more time in the temple and in family history work. As you make your testimony your highest priority, watch for miracles to happen in your life.”*<br />
+Elder Neil Anderson has taught:<br />
+*Anchoring our souls to the Lord Jesus Christ requires listening to those He sends…We live in a world of reason, debate, argument, logic, and explanation. Questioning, “Why?” is positive in so many aspects of our lives, allowing the power of our intellect to guide a multitude of choices and decisions we face each day. But the Lord’s voice often comes without explanation…Beyond relying on the intellect alone, we treasure the gift of the Holy Ghost.*<br />
 <br />
-Let us each seek the “best gifts” (1 Coe 12:31), that we might also walk in the Lord’s “ways” (1 Kings 3:14).<br />
+As we each seek to follow the prophet as well as the promptings of the Holy Ghost, I know that we will be blessed as we focus more on the “what” and less on the “why” of divine invitations.<br />
 <br />
 Bishop Jardine<br />
-<br />
---<br />
-<br />
-“Quick to Observe”, by David A. Bednar<br />
-https://www.churchofjesuschrist.org/study/ensign/2006/12/quick-to-observe?lang=eng<br />
 <br />
 
 
@@ -43,11 +38,19 @@ https://zoom.us/j/9377962222?pwd=Rlo0QlAzS1FuenAyQ3RrczhiUUpGdz09<br />
 <hr />
 
 **NEWS**<br />
-**Hear Him, by Camille Johnson**<br />
-https://www.churchofjesuschrist.org/media/video/2020-02-2390-how-i-hearhim-president-camille-n-johnson?lang=eng&alang=eng&collectionId=f3ee71a22eaa47608f71479976bda74e<br />
-<br />
 **Update Your Photos**<br />
-We want everyone to get to know eachother better. There are still a lot of old or missing photos in the directory. Please add or update your photos in the church directory, if you haven't done so recently. Use the Tools app, the church website, or just email them to Brother LaPointe or Adam Andersen. Reach out to the Ward Clerks if you need help.<br />
+We want everyone to get to know each other better. There are still a lot of old or missing photos in the directory. Please add or update your photos in the church directory, if you haven't done so recently. Use the Tools app, the church website, or just email them to Matt LaPointe or Adam Andersen. Reach out to the Ward Clerks if you need help.<br />
+<br />
+**Temple Schedule**<br />
+Endowment sessions available:<br />
+• Tuesday: 7:00 p.m., 7:30 p.m., and 8:00 p.m.<br />
+• Wednesday: 7:00 p.m., 7:30 p.m., and 8:00 p.m.<br />
+• Thursday: hourly from 10:00 a.m. to 8:00 p.m.<br />
+• Friday: hourly from 10:00 a.m. to 8:00 p.m. A session in ASL will be held on the 3rd Friday of each month at 7:00 p.m.<br />
+• Saturday: hourly from 7:00 a.m. to 7:00 p.m. with three additional morning sessions on the half hour at 9:30, 10:30 and 11:30 am. The 10:30 a.m. session will be conducted in Spanish. A second Spanish session will be held at 7:15 p.m.<br />
+<br />
+Baptistry Sessions:<br />
+For families, individuals, and small groups, the temple baptistry will be available Thursdays (morning and afternoon); Fridays (morning, afternoon and evening); Saturdays (prior to 10:00 a.m. and after 5:00 p.m.) Beginning on July 1, 2022, you may start making appointments for baptistry sessions for families, individuals and small groups for the period August 30 through November, and thereafter up to 3 months in advance.<br />
 <br />
 <br />
 
@@ -55,18 +58,6 @@ We want everyone to get to know eachother better. There are still a lot of old o
 <hr />
 
 **WEEKLY ANNOUNCEMENTS**<br />
-**YW Camp**<br />
-Tuesday, June 28 - Friday, July 1, 2022<br />
-@ *Verdun Adventure Bound*<br />
-YCLs will report Monday, June 27. <br />
-<br />
-**Annual Ward Fourth of July Breakfast**<br />
-Monday, July 4, 2022, 9:00 AM<br />
-@ *Roberts Park, 510 Lynn St, Falls Church, 22046*<br />
-We'll gather for sociality and breakfast, hear a patriotic message, and sing a few patriotic anthems.<br />
-Bring: *Folding chairs, picnic blankets, and a side of fruit to share; breakfast will be provided.*<br />
-NOTE: Roberts Park has limited parking and no bathrooms. Walk/ride bikes if you are close; park includes a large field, basketball court, and playground for kids activities.<br />
-
 **Oakton Stake Dance**<br />
 Saturday, July 16, 2022, 8:00 PM<br />
 @ *Oakton Stake Center, 2719 Hunter Mill Rd., Oakton, VA*<br />
@@ -77,7 +68,6 @@ Ages: Turning 14 in 2022 - through high school<br />
 Friday, July 22, 2022, 6:00 AM<br />
 @ *Meet at Stake Center*<br />
 Our last chance to visit the Philadelphia Temple, all youth are invited to participate. <br />
-
 **DC Temple Rededication**<br />
 Sunday, August 14, 2022, 10:00 a.m<br />
 @ *9900 Stoneybrook Dr, Kensington, MD 20895*<br />
@@ -104,3 +94,4 @@ https://zoom.us/j/8978612608?pwd=bnh5NTJrN0hiUjM3OVZ5STBMRlVzUT09<br />
 For more events and their details see the printed ward bulletin.  <br />
 <br />
 
+"
